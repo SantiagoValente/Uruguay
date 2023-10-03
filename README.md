@@ -2,4 +2,4 @@
 El país
 
 *Cambio*
-😔📸🇦🇫
+😔📸:afghanistan:
